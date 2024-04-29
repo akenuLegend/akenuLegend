@@ -5,7 +5,7 @@
 - 📫 I'm not good at my major but I want to share my idea & how we can do some simple things.
 - ⚡ fact: I am a loner, I always try to do everything better.
 -  🌱 Contact with me if u want.
--  
+  
 
 <!---
 akenuLegend/akenuLegend is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
