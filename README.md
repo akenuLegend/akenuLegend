@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akenuLegend
 - 👀 I’m interested in football & code.
-- 😄 School: VNU-HCMUS, major: Electronic & Communication.
+- 😄 School: VNU-HCMUS, major: Electronic & Telecommunication.
 - 💞️ I’m looking for some suitable jobs.
 - 📫 I'm not good at my major but I want to share my idea & how we can do some simple things.
 - ⚡ fact: I am a loner, I always try to do everything better.
